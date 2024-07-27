@@ -17,4 +17,6 @@ Email: info@da88.tv.
 
 Website: https://da88.tv/
 
+Author: https://da88.tv/tran-ha-linh-ceo-da88/
+
 #da88 #nhacaida88 #trangchuda88 #dangkyda88 #dangnhapda88 #appda88
